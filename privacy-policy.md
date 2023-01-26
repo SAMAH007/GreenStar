@@ -31,6 +31,6 @@ Changes to this Privacy Policy
 
 Contact Us
 
-    If you have any questions about this privacy policy or our use of your personal information, please contact us at [contact information].
+    If you have any questions about this privacy policy or our use of your personal information, please contact us at samahonline17(at)gmail.com.
 
 By using our App, you consent to our privacy policy.
