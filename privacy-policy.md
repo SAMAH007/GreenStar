@@ -1,4 +1,4 @@
-This privacy policy applies to the "App Name" mobile application (the "App") for Android devices.
+This privacy policy applies to the "Radio Mallu - Malayalam Live radio AM and FM" mobile application (the "App") for Android devices.
 
 Information We Collect
 
